@@ -60,6 +60,10 @@ ________________________________________________________________________________
 
    ![image](https://github.com/user-attachments/assets/60e5b2b9-5437-4d78-b399-e8541136e5b0)
 
+15. In this competition I had to create a cereal box with the standard government regulations and design requirements per FDA and USDA.
+
+    ![image](https://github.com/user-attachments/assets/ef85c63d-dda3-44a1-a904-5ad44300156c)
+
 
 
 
