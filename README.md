@@ -65,6 +65,9 @@ ________________________________________________________________________________
     ![image](https://github.com/user-attachments/assets/ef85c63d-dda3-44a1-a904-5ad44300156c)
 
 
+16. My friend is a beekeeper in Antioch California and she asked me to make her a logo for a 8 oz jar
+
+    ![image](https://github.com/user-attachments/assets/b0e3cc65-d5a3-4577-ae5c-2c096d2ced47)
 
 
 
