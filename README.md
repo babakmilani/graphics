@@ -49,7 +49,8 @@ ________________________________________________________________________________
 
  13. I made this digital art as personal challenge because I thought that making a flower was difficult.
 
-     ![image](https://github.com/user-attachments/assets/99eaefd2-e82b-48f0-9838-d051629b8380)
+     ![image](https://github.com/user-attachments/assets/b5865ed7-02e6-4584-b80e-05a1914047d2)
+
 
 
 
