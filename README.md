@@ -14,3 +14,15 @@ ________________________________________________________________________________
 
 4. This was an illustration that I wanted to express a dark place but inside you can find beauty.
    ![image](https://github.com/user-attachments/assets/268f9cce-2943-4406-9934-f52426e48cb4)
+
+5. This was a project I finished to learn to use the various tools in the most efficient way
+   ![image](https://github.com/user-attachments/assets/73df4fb4-772f-44b3-bf71-1b6c6c457315)
+
+6. This was a pretty difficult project because it took many layers and manipulation to complete
+   ![image](https://github.com/user-attachments/assets/24adf5cc-41a9-4938-b742-6ff90e96cb76)
+
+7. This is project I completed for a Haitian food business that sells specialty foods. Konbit stands for community.
+   ![image](https://github.com/user-attachments/assets/3f48938c-8b8f-4431-b358-da86e7517c24)
+   
+
+
