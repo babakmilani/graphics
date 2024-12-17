@@ -1,5 +1,6 @@
 # graphics
-Digital graphics and graphics projects by Babak Milani. All work is done in Adobe Illustrator.
+Digital graphics and graphics projects by Babak Milani. All work is done in Adobe Illustrator. I enjoy making digital art it has always been a passion. 
+I can get emerged in making art for hours on in and feel euphoric. Its one of my passtime activities. 
 
 ___________________________________________________________________________________________________________________________________________________________
 
@@ -54,6 +55,12 @@ ________________________________________________________________________________
 14. This was for the San Francisco District Attorney's office community outreach to inform the public about their service
 
     ![image](https://github.com/user-attachments/assets/23afa57b-da52-464e-a2fa-45d65ae10a22)
+
+   ![image](https://github.com/user-attachments/assets/5ce5b4a8-3d8d-4e30-8826-0e697a842161)
+
+   ![image](https://github.com/user-attachments/assets/60e5b2b9-5437-4d78-b399-e8541136e5b0)
+
+
 
 
 
