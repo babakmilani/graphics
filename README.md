@@ -4,7 +4,19 @@ I can get emerged in making art for hours on in and feel euphoric. Its one of my
 
 ___________________________________________________________________________________________________________________________________________________________
 
-1. This is a personal project I worked on individually. I spent close to two hours to complete it as template that could be use to build various other artwork.
+1. This a logo I Created for a online retailer No Identity Space.
+
+![NoIS-Typefont](https://github.com/user-attachments/assets/bc528d46-d639-4fd6-a931-6d1cd899d48a)
+
+2. I Created this Logo for www.kontani.org
+
+![Kontani](https://github.com/user-attachments/assets/107d2e36-8464-4af2-8311-7271c21117ea)
+
+5. I created this flyer for www.Kontani.org
+
+![Kontani Donation Flyer](https://github.com/user-attachments/assets/b1ef29a2-1809-43e3-9b71-c58f7464bd7b)
+
+4. This is a personal project I worked on individually. I spent close to two hours to complete it as template that could be use to build various other artwork.
    
 ![image](https://github.com/user-attachments/assets/7418251b-6678-43f3-81e0-f1a6bd7c8269)
 
@@ -68,6 +80,8 @@ ________________________________________________________________________________
 16. My friend is a beekeeper in Antioch California and she asked me to make her a logo for a 8 oz jar
 
     ![image](https://github.com/user-attachments/assets/b0e3cc65-d5a3-4577-ae5c-2c096d2ced47)
+
+
 
 
 
