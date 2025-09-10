@@ -1,6 +1,6 @@
 # graphics
-Digital graphics and graphics projects by Babak Milani. All work is done in Adobe Illustrator. I enjoy making digital art it has always been a passion. 
-I can get emerged in making art for hours on in and feel euphoric. Its one of my passtime activities. 
+Digital graphics by Babak Milani. I enjoy making digital art, it has always been a passion. 
+
 
 ___________________________________________________________________________________________________________________________________________________________
 
