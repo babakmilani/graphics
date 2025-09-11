@@ -49,15 +49,15 @@ ________________________________________________________________________________
    
    ![image](https://github.com/user-attachments/assets/3f48938c-8b8f-4431-b358-da86e7517c24)
 
-10. I wanted to create a backdrop for another project with a european touch.
+10. This vector graphics illustration I created out of my love for my Danish roots. This is from a picture I took while I vacationed in Copenhagen.
    
    ![image](https://github.com/user-attachments/assets/faa30044-b75e-4c3e-9f5f-091acc772e39)
 
-11. I bike for a living and so I decide to create my bike as an illustration
+11. Biking is one of my past time joys so I took a picture of my bicycle and turned it into a Vector graphics illustration. 
     
     ![image](https://github.com/user-attachments/assets/0ba0d1e7-3de7-41d0-be63-7c6fce540a7b)
 
-12. I participated in a competition sponsored by Forage. Forage sought the public to come up with a logo for a campaign they started globally
+12. I participated in a competition sponsored by Forage. Forage sought the public to come up with a logo for a campaign they started globally.
     
     ![image](https://github.com/user-attachments/assets/27b1d65d-f397-462e-b0f3-9c43b73c16b3)
 
