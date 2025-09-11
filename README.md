@@ -32,11 +32,11 @@ ________________________________________________________________________________
    
 ![image](https://github.com/user-attachments/assets/5fdbf298-a526-438e-83fc-5cdf3baff9da)
 
-5. This was an illustration that I wanted to express a dark place but inside you can find beauty.
+5. Experimentation Project.
    
    ![image](https://github.com/user-attachments/assets/268f9cce-2943-4406-9934-f52426e48cb4)
 
-6. This was a project I finished to learn to use the various tools in the most efficient way.
+6. This was a vector graphics illustration for a school sports ad made with Adove Illustrator.
    
    ![image](https://github.com/user-attachments/assets/73df4fb4-772f-44b3-bf71-1b6c6c457315)
 
