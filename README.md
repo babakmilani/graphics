@@ -40,7 +40,7 @@ ________________________________________________________________________________
    
    ![image](https://github.com/user-attachments/assets/73df4fb4-772f-44b3-bf71-1b6c6c457315)
 
-7. This was a pretty difficult project because it took many layers and manipulation to complete.
+7. I helped conceptualize an idea for a Youtube animated kids channel for a introductory video clip of fish and bubbles in the ocean. 
    
    ![image](https://github.com/user-attachments/assets/24adf5cc-41a9-4938-b742-6ff90e96cb76)
 
