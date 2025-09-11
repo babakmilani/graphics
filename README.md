@@ -5,7 +5,7 @@ Digital graphics by Babak Milani. I enjoy making digital art, it has always been
 ___________________________________________________________________________________________________________________________________________________________
 
 1. NO IDENTITY SPACE (NoIS): This was an idea I helped conceptualize. The initial idea was to create a brand that represents a community of people that
-   create art in the form of fashion that hold no boundaries in common identity for the people. 
+   create art in the form of fashion that hold no identity boundaries.
 
 ![NoIS-Typefont](https://github.com/user-attachments/assets/bc528d46-d639-4fd6-a931-6d1cd899d48a)
 
