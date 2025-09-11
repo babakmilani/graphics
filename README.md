@@ -1,4 +1,4 @@
-# graphics
+# VECTOR GRAPHICS ILLUSTRATIONS MADE WITH ADOBE ILLUSTRATOR
 Adobe Illustrator Graphics by Babak Milani.
 
 
