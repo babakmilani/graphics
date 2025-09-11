@@ -18,15 +18,17 @@ ________________________________________________________________________________
 
 ![Kontani Donation Flyer](https://github.com/user-attachments/assets/b1ef29a2-1809-43e3-9b71-c58f7464bd7b)
 
-4. This is a personal project I worked on individually. I spent close to two hours to complete it as template that could be use to build various other artwork.
+4. I used Adobe Illustrator to create this design by tracing a picture of the San Francisco Skyline for a T-shirt design.
    
 ![image](https://github.com/user-attachments/assets/7418251b-6678-43f3-81e0-f1a6bd7c8269)
 
-3. This is an illustration I build to be a part of a sports AD that was developed in Adobe After Effects.
+3. This is a vector graphics project that I created for an animated sports video. The script begins with a a ball kick into the goal
+   which then transitions into a TV screen with the Name of the online streaming provider.
    
 ![image](https://github.com/user-attachments/assets/1cb253b5-0988-4852-afa4-d0b2ea03060a)
 
-4. I made this illustration to make a flyer for a west african drummer who was teaching private lessons.
+4. This was part of an AD for a Senegalese Drumming School in Oakland California which I turned into a vector graphics illustration from the
+   drums used by the school.
    
 ![image](https://github.com/user-attachments/assets/5fdbf298-a526-438e-83fc-5cdf3baff9da)
 
