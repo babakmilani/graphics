@@ -4,15 +4,17 @@ Digital graphics by Babak Milani. I enjoy making digital art, it has always been
 
 ___________________________________________________________________________________________________________________________________________________________
 
-1. This a logo I Created for a online retailer No Identity Space.
+1. NO IDENTITY SPACE (NoIS): This was an idea I helped conceptualize. The initial idea was to create a brand that represents a community of people that
+   create art in the form of fashion that hold no boundaries in common identity for the people. 
 
 ![NoIS-Typefont](https://github.com/user-attachments/assets/bc528d46-d639-4fd6-a931-6d1cd899d48a)
 
-2. I Created this Logo for www.kontani.org
+2. This is a brand name that I helped conceptualize from the Kréole meaning Kombit that means, " community effort ". The domain is a website for
+   a non-profit organization in New York that help struggling families with the essential necessities. 
 
 ![Kontani](https://github.com/user-attachments/assets/107d2e36-8464-4af2-8311-7271c21117ea)
 
-5. I created this flyer for www.Kontani.org
+5. This is a flyer I made for an event hosted by Kontani for give-aways to help struggling familes in Harlem, NY.
 
 ![Kontani Donation Flyer](https://github.com/user-attachments/assets/b1ef29a2-1809-43e3-9b71-c58f7464bd7b)
 
