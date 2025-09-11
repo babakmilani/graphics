@@ -61,11 +61,11 @@ ________________________________________________________________________________
     
     ![image](https://github.com/user-attachments/assets/27b1d65d-f397-462e-b0f3-9c43b73c16b3)
 
-13. I helped a friend of mine that works for the San Francisco District Attorneys office create a flyer for a community event.
+13. This is a flyer I helped create for a colleague of mine at the SF DA office for a community outreach event. 
     
  ![image](https://github.com/user-attachments/assets/ea4250a1-6fde-4f45-b241-8ad13e20acf0)
 
- 13. I made this digital art as personal challenge because I thought that making a flower was difficult.
+ 13. Experimentation Project. 
 
      ![image](https://github.com/user-attachments/assets/b5865ed7-02e6-4584-b80e-05a1914047d2)
 
@@ -77,12 +77,12 @@ ________________________________________________________________________________
 
    ![image](https://github.com/user-attachments/assets/60e5b2b9-5437-4d78-b399-e8541136e5b0)
 
-15. In this competition I had to create a cereal box with the standard government regulations and design requirements per FDA and USDA.
+15. This was for a school project. I had to create a cereal box design. 
 
     ![image](https://github.com/user-attachments/assets/ef85c63d-dda3-44a1-a904-5ad44300156c)
 
 
-16. My friend is a beekeeper in Antioch California and she asked me to make her a logo for a 8 oz jar
+16. This is a logo for a friend of mine who is retired and now runs a behive in California. 
 
     ![image](https://github.com/user-attachments/assets/b0e3cc65-d5a3-4577-ae5c-2c096d2ced47)
 
