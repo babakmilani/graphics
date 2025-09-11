@@ -44,23 +44,24 @@ ________________________________________________________________________________
    
    ![image](https://github.com/user-attachments/assets/24adf5cc-41a9-4938-b742-6ff90e96cb76)
 
-8. This is project I completed for a Haitian food business that sells specialty foods. Konbit stands for community.
+8. This was one of the typefonts I created for a non-profit organization for their branding. The organization is based in New York
+   and it helps struggling families with essentials necessities. 
    
    ![image](https://github.com/user-attachments/assets/3f48938c-8b8f-4431-b358-da86e7517c24)
 
-9. I wanted to create a backdrop for another project with a european touch.
+10. I wanted to create a backdrop for another project with a european touch.
    
    ![image](https://github.com/user-attachments/assets/faa30044-b75e-4c3e-9f5f-091acc772e39)
 
-10. I bike for a living and so I decide to create my bike as an illustration
+11. I bike for a living and so I decide to create my bike as an illustration
     
     ![image](https://github.com/user-attachments/assets/0ba0d1e7-3de7-41d0-be63-7c6fce540a7b)
 
-11. I participated in a competition sponsored by Forage. Forage sought the public to come up with a logo for a campaign they started globally
+12. I participated in a competition sponsored by Forage. Forage sought the public to come up with a logo for a campaign they started globally
     
     ![image](https://github.com/user-attachments/assets/27b1d65d-f397-462e-b0f3-9c43b73c16b3)
 
-12. I helped a friend of mine that works for the San Francisco District Attorneys office create a flyer for a community event.
+13. I helped a friend of mine that works for the San Francisco District Attorneys office create a flyer for a community event.
     
  ![image](https://github.com/user-attachments/assets/ea4250a1-6fde-4f45-b241-8ad13e20acf0)
 
