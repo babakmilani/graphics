@@ -1,5 +1,5 @@
 # graphics
-Digital graphics by Babak Milani. I enjoy making digital art, it has always been a passion. 
+Adobe Illustrator Graphics by Babak Milani.
 
 
 ___________________________________________________________________________________________________________________________________________________________
